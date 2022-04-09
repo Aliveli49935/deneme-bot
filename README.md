@@ -1,0 +1,2 @@
+# deneme-bot
+yweqe
